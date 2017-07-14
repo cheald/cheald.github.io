@@ -3,8 +3,8 @@
 
 * 1lb ground sausage
 * Italian seasoning
-* 1 large onion, diced small
-* 4-6 potatoes, diced small
+* 1 large onion (~500g worth), diced small
+* 4-6 potatoes (~750g worth), diced small
 * 1 can of cream of chicken and mushroom soup
 * 3/4 cup milk
 * Grated cheese
